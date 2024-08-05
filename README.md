@@ -1,6 +1,6 @@
 ⠀⠀ 𓂃 hello . !
 🍥⠀⪩⪨⠀⠀ dnc . my skins ! you can take insp but please ask … !﹕🍮
 
-. baic dni citeria.🐇
+.𓏵  baic dni citeria.🐇
 
-whisper・to・int!・⠀𓂃 🍓⠀ (unless friend)⠀⠀:
+﹒⟢⠀⠀ whisper・to・int!・⠀𓂃 🍓⠀⠀:
