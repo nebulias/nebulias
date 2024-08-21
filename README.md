@@ -6,4 +6,4 @@
 ﹒⟢⠀⠀ free int !!・⠀𓂃 ⠀⠀:
 
 
-i dont ship any sonic character i just (sometimes) cuddle with people when i feel like it (if they wre okay with it)
+i dont ship any sonic character i just (sometimes) cuddle with people when i feel like it (if they are okay with it)
