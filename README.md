@@ -1,8 +1,8 @@
 ⠀⠀ 𓂃 hello . !
-⪩⪨⠀⠀ dnc . my skins ! you can take insp but please ask … !﹕
+⪩⪨⠀⠀ DO NOT COPY . my skins ! you can take insp but please ask … !﹕
 
-.𓏵  baic dni citeria.
+.⠀⠀ ⠀⠀ 𓏵  basic dni citeria.
 
 ﹒⟢⠀⠀ free int !!・⠀𓂃 ⠀ᵔᗜᵔ
 
-i dont ship any sonic character heh... im so different... 
+⠀⠀ ⠀⠀ i dont ship any sonic character heh...⠀⠀ im so different... 
