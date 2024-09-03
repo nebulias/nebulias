@@ -3,7 +3,6 @@
 
 .𓏵  baic dni citeria.
 
-﹒⟢⠀⠀ free int !!・⠀𓂃 ⠀⠀:
+﹒⟢⠀⠀ free int !!・⠀𓂃 ⠀ᵔᗜᵔ
 
-
-i dont ship any sonic character i just (sometimes) cuddle with people when i feel like it (if they are okay with it)
+i dont ship any sonic character heh... im so different... 
