@@ -6,4 +6,4 @@
 #
 ⠀⠀ ⠀⠀ i dont ship any sonic character heh...⠀⠀ im so different... 
 
-⠀⠀ ⠀⠀ ⠀⠀ ***my friend requests are off due to people sending them without reason, if you would like to add me please whisper it to me***! thank yewww ᵔᗜᵔ
+⠀⠀ ⠀⠀ ⠀⠀ i'm mostly in **STH** area, but im sometimes in crk too or other fandoms! but not too much
