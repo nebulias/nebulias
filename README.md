@@ -1,7 +1,7 @@
 ⠀⠀ 𓂃 hello . !
 ⪩⪨⠀⠀ *DO NOT COPY* . my skins ! you can take insp but please ask … !﹕
 
-.⠀⠀ ⠀⠀ 𓏵  basic dni citeria.
+.⠀⠀ ⠀⠀ 𓏵  basic dni citeria. free int unless my name says so ! --
 
 #
 ⠀⠀ ⠀⠀ i dont ship any sonic character heh...⠀⠀ im so different... 
